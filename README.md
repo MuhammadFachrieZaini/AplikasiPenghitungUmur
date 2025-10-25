@@ -1,2 +1,2 @@
 # AplikasiPenghitungUmur
-Tugas Latihan 2- Muhammad Fachrie Zaini_19631183
+Latihan 2 - Nor Aqifah (2310010196)
